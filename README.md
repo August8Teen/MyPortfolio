@@ -1,2 +1,0 @@
-# MyPortfolio
-just4fun
